@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 My name is Yulia!
 
 - 💬 Ask me about any vacancy! Hope, I have a good one for you!
 - 📫 How to reach me: telegram @yuliakaynko28
