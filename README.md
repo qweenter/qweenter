@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-- 💬 Ask me about any job position! Hope, I have a good one for you!
+- 💬 Ask me about any vacancy! Hope, I have a good one for you!
 - 📫 How to reach me: telegram @yuliakaynko28
 
 <!--
