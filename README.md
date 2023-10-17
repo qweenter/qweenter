@@ -1,7 +1,7 @@
 ### Hi there 👋
 
-💬 Ask me about Recruiting and HR processes
-📫 How to reach me: telegram @yuliakaynko28
+- 💬 Ask me about any job position! Hope, I have a good one for you!
+- 📫 How to reach me: telegram @yuliakaynko28
 
 <!--
 **qweenter/qweenter** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
